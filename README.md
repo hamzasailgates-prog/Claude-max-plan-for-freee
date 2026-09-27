@@ -1,0 +1,2 @@
+# Claude-max-plan-for-freee
+Claude Max plan for FREE ✌️👇👇https://claude.com/contact-sales/claude-for-oss?mcp_token=eyJwaWQiOjExODAwODIsInNpZCI6MTAzNzIyOTQ4MiwiYXgiOiJjMjQyYWZiYmU5ZDBiZjBkMTQ5ZjdjMjRiMTU4ZTM4MSIsInRzIjoxNzc1MDM2OTM5LCJleHAiOjE3Nz c0NTYxMzl9.gj7BjhRZLYZ9S2l5cdwfapKXVNvRvaQwI6JQ3F7d3B8
